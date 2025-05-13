@@ -70,6 +70,9 @@ Mas caso fique interessado nas artes eu tenho um perfil postando alguns desenhos
 
 TikTok:https://www.tiktok.com/@clown.lady1?_t=ZM-8wJBlNVsyAA&_r=1
 
+![image](https://github.com/user-attachments/assets/66c32585-20b8-46ff-84e2-65e386a5b2a7)
+
+
 ---
 
 ![image](https://github.com/user-attachments/assets/950ef480-832a-45c7-9227-6c3536e07eb6)
